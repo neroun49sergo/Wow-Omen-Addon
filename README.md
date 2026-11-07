@@ -206,4 +206,4 @@ WOW Omen Addon is the **full free version** with all features and updates includ
 Ready to take control of your gameplay? **Download WOW Omen Addon now and enhance your World of Warcraft experience!**
 
 ---
-**Last updated:** 2026-11-06 21:13:10 UTC
+**Last updated:** 2026-11-07 01:31:45 UTC
